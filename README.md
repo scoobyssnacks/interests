@@ -14,7 +14,7 @@
 
 ㅤㅤㅤㅤcastlevania ,ㅤcabaret ,ㅤsonic ,ㅤarcane ,ㅤeddsworld ,ㅤxavier renegade angel ,ㅤrobot chicken ,
 
-ㅤㅤㅤㅤtxt ,ㅤtxt ,ㅤtxt ,ㅤtxt ,ㅤtxt ,ㅤtxt ,ㅤtxt ,ㅤ
+ㅤㅤㅤㅤxmen ,ㅤmarvel ,ㅤbohemian rhapsody 2018 ,ㅤfrankenstein 2025 ,ㅤlast king of scotland ,ㅤgravity falls ,ㅤa most violent yearㅤ
 
 ㅤㅤ
 
