@@ -12,7 +12,7 @@
 
 ㅤㅤㅤㅤthe black phone ,ㅤstranger things ,ㅤbigtop burger ,ㅤsplit ,ㅤmoon knight ,ㅤspeak no evil ,ㅤdoctor who ,
 
-ㅤㅤㅤㅤcastlevania ,ㅤtxt ,ㅤtxt ,ㅤtxt ,ㅤtxt ,ㅤtxt ,ㅤtxt ,ㅤtxt ,
+ㅤㅤㅤㅤcastlevania ,ㅤcabaret ,ㅤsonic ,ㅤarcane ,ㅤeddsworld ,ㅤxavier renegade angel ,ㅤrobot chicken ,
 
 ㅤㅤㅤㅤtxt ,ㅤtxt ,ㅤtxt ,ㅤtxt ,ㅤtxt ,ㅤtxt ,ㅤtxt ,ㅤ
 
@@ -20,8 +20,10 @@
 
 ㅤㅤㅤ**b**andsㅤ&ㅤ**g**roupsㅤㅤ﹕
 
-ㅤㅤㅤㅤtxt ,ㅤtxt ,ㅤtxt ,ㅤtxt ,ㅤtxt ,ㅤtxt ,ㅤtxt ,ㅤ
+ㅤㅤㅤㅤqueen ,ㅤmetallica ,ㅤand one ,ㅤmiss construction ,ㅤkmfdm ,ㅤkorn ,ㅤsystem of a down ,ㅤ
 
-ㅤㅤㅤㅤtxt ,ㅤtxt ,ㅤtxt ,ㅤtxt ,ㅤtxt ,ㅤtxt ,ㅤtxt ,ㅤ
+ㅤㅤㅤㅤdisturbed ,ㅤpink floyd ,ㅤalan cumming ,ㅤkendrick lamar ,ㅤtyler the creator ,ㅤmegadeth ,ㅤtool ,ㅤ
 
-ㅤㅤㅤㅤtxt ,ㅤtxt ,ㅤtxt ,ㅤtxt ,ㅤtxt ,ㅤtxt ,ㅤtxt ,ㅤ
+ㅤㅤㅤㅤa perfect circle ,ㅤlinkin park ,ㅤslipknot ,ㅤmen at work ,ㅤeminem ,ㅤorgy ,ㅤjamie paige
+
+ㅤㅤㅤㅤmaretu ,ㅤkikuo ,ㅤTSOL ,ㅤDEVO ,ㅤfontaines dc ,ㅤdethklok ,ㅤdjo
