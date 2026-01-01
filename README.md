@@ -1,0 +1,2 @@
+# interests
+𓂃ㅤㅤㅤmyㅤㅤinterestsㅤ♡
