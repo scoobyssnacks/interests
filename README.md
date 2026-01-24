@@ -35,5 +35,7 @@
 ㅤㅤㅤ**b**ooksㅤ&ㅤ**c**omicsㅤ﹕
 
 ㅤㅤㅤㅤanne rice novelsㅤ(ㅤinterview with the vampire ,ㅤthe vampire lestat ,ㅤqueen of the damned ,ㅤthe tale of the body theif ,ㅤmemnoch the devil ,ㅤthe vampire armandㅤ. . .ㅤ)
+
 ㅤㅤㅤㅤjrr tolkien novelsㅤ(ㅤthe hobbit ,ㅤfellowship of the ring ,ㅤthe two towers ,ㅤreturn of the king ,ㅤthe silmarillion ,ㅤunfinished tales of númenor and middle-earthㅤ. . .ㅤ)
+
 ㅤㅤㅤㅤxmen ,ㅤmarvel ,ㅤthe uncanny xmen ,ㅤthe sonic archives ,ㅤjohnny the homicidal maniac ,ㅤinvader zim
